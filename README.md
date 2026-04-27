@@ -149,7 +149,7 @@ Just don't use it to judge other people. That's not what it's for.
 
 **Neil (筑见)** · [zhujianneil.com](https://www.zhujianneil.com) · hi@zhujianneil.com
 
-独立思想者 / FA财务顾问 · 价值投资 · AI 工作流 · 认知
+价值投资 / FA财务顾问 · AI 工作流 · 认知
 *Independent thinker & advisor · Value investing · AI workflows · Cognition*
 
 ---
